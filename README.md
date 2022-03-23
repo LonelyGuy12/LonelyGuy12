@@ -1,4 +1,4 @@
-### Why you here huh?
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?lines=Why+you+here+huh%3F)](https://git.io/typing-svg)
 
 <!--
 **LonelyGuy12/LonelyGuy12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
