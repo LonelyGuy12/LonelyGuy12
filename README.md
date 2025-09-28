@@ -31,16 +31,16 @@ Here are some of the songs closest to my heart:
 
 ### 🌸 Japanese / Emotional Vibes  
 - *3 o clock kiss* — **Rokudenshai**  
-- *Kokoronashi* — **Aimer**  
+- *Kokoronashi* — **majiko**  
 - *Suzume* — **RADWIMPS feat. Toaka**  
-- *Kanojo wo Tabinideru* — **Rokudenshai**  
+- *Kanojo wo Tabinideru* — **sana**  
 
 ### 💜 English / Late Night Feels  
 - *Runaway* — **Halycon**  
 - *Alone* — **BEAUZ**  
 - *Ocean* — **Lost Wolves**  
 - *Older* — **Sasha Alex Sloan**  
-- *Let Me Down Slowly* — **Alec Benjamin**  
+- *The Way You Felt* — **Alec Benjamin**  
 
 (and honestly… anything that makes you feel like staring at the ceiling at 2AM ✨)  
 
