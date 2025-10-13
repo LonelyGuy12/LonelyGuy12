@@ -60,5 +60,5 @@ You can find me here:
 
 Thanks for stopping by — hope I made you smile! (づ｡◕‿‿◕｡)づ  
 
-> P.S.​[](https://github.com/e5koibito/e5koibito/blob/main/README.md)she's shoo cute. 🌸
+> P.S. ​[](https://github.com/e5koibito/e5koibito/blob/main/README.md)she's shoo cute. 🌸
 
